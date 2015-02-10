@@ -24,6 +24,11 @@ According to an article in TVTropes during Sweeps week of television, which is u
 
 While the Census Bureau has been estimating same-sex households in the U.S. they are working to update the questions within the 2020 Census to include a more specific question as to who the survey taker lives with and then to label them as opposite-sex or same-sex husband/wife or unmarried partner. It would be interesting to see how <a href=http://www.pewresearch.org/fact-tank/2014/05/13/census-struggles-to-reach-an-accurate-number-on-gay-marriages/> they've estimated thus far regarding how many same-sex households there are in the U.S. </a>
 
+**<a href=http://www.census.gov/prod/2011pubs/acsbr10-03.pdf> Same-Sex Households 2011 Data </a>**
+While the Census might not do that great of a job collecting specific data on same-sex individuals, there is some data regarding in which state same-sex households are the most prevalent.
+
 **<a href=http://trends.e-strategyblog.com/2013/05/09/top-gaining-site-categories-february-march-2013/11020> comScore Metrics Show Increase in Searches for G/L Articles </a>**
 Increase in gay/lesbian searches when looking for articles from 2012-2013. comScore metrics could possibly show the correlation of the increase of lesbians looking into more relevant articles while also showing the need this minority should be included in other articles.
+
+
 
