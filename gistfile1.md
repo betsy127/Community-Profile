@@ -1,38 +1,16 @@
-**Data**
-
-![piechart](http://www.psdgraphics.com/file/3d_pie_chart.jpg)
-
-
-Percentage of the population in America are lesbians/bisexual women, women that have had same-sex experiences
-Percentage of women who identify as lesbian or bisexual
-Percentage of lesbians on social media
-Percentage of lesbians who are college educated
-Most popular online publishers/news sites Lesbians read
-Most popular websites made for Lesbians
-How many articles are about lesbians
-How many lesbians work in media
-Percentage of lesbians in movies and/or TV
-Percentage of podcasts on lesbians (or just seeing if any podcasts exist and which are the best)
-A possible way to measure lesbian representation in podcasts/online publishers
-Percentage of how much other minorities are represented, compared to lesbians (hispanic/black)
-How many lesbians would become straight if had the option
-Education brackets of lesbians
-Social acceptance of Americans who accept LGBTs
-Lesbians/bisexuals portrayed on television (making them more prevalent in the daily eye of Americans)
-average income of lesbians
+**Why this is important now:**
+From the silent generation to millennials, same-sex marriage is increasingly becoming more accepted. According to a Pew Research poll conducted in early 2014, in the silent generation there has been an 80% increase in acceptance while millennials have increased by 33% from 2001 to 2014. Lesbians and bisexual women are no longer hiding as with acceptance comes a higher level of comfort. 
+While the presence of lesbian and bisexual women has become increasingly popular there should, in turn, be less and less abnormality around the subject. A change in how lesbians and bisexual women are referred to is significant in order to become inclusive of everyday norms. 
 
 
-Salient Characteristics
-age range: 18 - 
-Lesbian and bisexual women
-inclusive of all races/ethnicities
-US based
+**Who might care about this:**
+Lesbians and bi-sexual women who feel outcasted by society. Americans may not realize the discrimination towards this group of people by solely basing the women on whom they have sex with and not understanding the “love is love” concept. 
 
+**Pre-Reporting:**
 
-Data Links
-http://www.cdc.gov/nchs/data/nhsr/nhsr077.pdf - % of population in U.S. are lesbians/bisexual & % of women/women that have had same-sex expriences
-http://politics.as.nyu.edu/docs/IO/4819/hunter_college_poll.pdf - college students
-http://features.pewforum.org/same-sex-marriage-attitudes/slide2.php - percentage of americans in support of LGBT communities
-https://www.glaad.org/files/whereweareontv12.pdf - Where lesbians are on TV (yearly report by GLAAD)
+ <a href=http://features.pewforum.org/same-sex-marriage-attitudes/slide2.php>Pew Research poll </a>
+Regarding acceptance of gay marriage, younger generations are more accepting of older generations.  However, acceptance is much higher in 2014 than in 2001.  Millennials acceptance increased from 51% to 68%, and baby boomers from 32% to 48%.  This demonstrates an overall acceptance of gay people being equal to heterosexuals, and can facilitate an inclusion of lesbians as a norm instead of as the variable.
 
+Hunter College Poll - First Ever Academic Survey of LGB Adults
+Founded interesting demographics of LGB Adults that took part in the survey, i.e, approx 2.9% of U.S. adults consider themselves LGB, not many of these people think their being gay has much importance, and the younger generation of lesbian/bisexuals care most about being able to legalize same-sex marriage while older generations feel that this a lower priority. 
 
