@@ -8,7 +8,7 @@ Lesbians and bi-sexual women who feel outcasted by society.
 
  **<a href=http://features.pewforum.org/same-sex-marriage-attitudes/slide2.php>Pew Research poll </a>**
  
-<pre>     </pre> Regarding acceptance of gay marriage, younger generations are more accepting of older generations. However, acceptance is much higher in 2014 than in 2001. Millennials acceptance increased from 51% to 68%, and baby boomers from 32% to 48%. This demonstrates an overall acceptance of gay people being equal to heterosexuals, and can facilitate an inclusion of lesbians as a norm instead of as the variable.
+Regarding acceptance of gay marriage, younger generations are more accepting of older generations. However, acceptance is much higher in 2014 than in 2001. Millennials acceptance increased from 51% to 68%, and baby boomers from 32% to 48%. This demonstrates an overall acceptance of gay people being equal to heterosexuals, and can facilitate an inclusion of lesbians as a norm instead of as the variable.
 
 **<a href=http://politics.as.nyu.edu/docs/IO/4819/hunter_college_poll.pdf> Hunter College Poll - First Ever Academic Survey of LGB Adults </a>**
 
@@ -34,7 +34,7 @@ Lesbian women report having a lower well-being than straight women, with a 56 in
 
 **<a href=http://istrategylabs.com/2010/04/facebook-gay-men-and-lesbian-statistics-pakistan-and-washington-dc-standout/> Lesbians on Facebook - iStrategy Analyses </a>**
 
-iStrategy analyzed gay & lesbian population count via FB. Some key insights included the amount of lesbian women on Facebook, at which age are there are the highest percentage of lesbians and that NY has the highest percentage of lesbian women despite certain findings that LGBT populations are higher in other areas. 
+iStrategy analyzed gay & lesbian population count via Facebook. Some key insights included that 1.6 percent of all users identified as lesbian, and age 22 has the highest percentage of lesbians out of Facebook users in the United States. NY has the highest percentage of lesbian women, despite certain findings that LGBT populations are higher in other areas. 
 
 **<a href=http://www.pewsocialtrends.org/2013/06/13/a-survey-of-lgbt-americans/> Pew Research Center's 18+ LGBT Survey </a>**
 
