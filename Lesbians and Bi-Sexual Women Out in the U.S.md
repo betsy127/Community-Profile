@@ -1,4 +1,4 @@
-**Lesbians Want Representation**
+**Lesbians Want Inclusion**
 
 Emily Goldblum & Betsy Laikin
 
