@@ -26,12 +26,19 @@ While the Census Bureau has been estimating same-sex households in the U.S. they
 While the Census might not do that great of a job collecting specific data on same-sex individuals, there is some data showing which states same-sex households are the most prevalent.  These include most of New England, New York, Washington D.C., and California.  Smallest populations are in the deep south, like Arkansas, Louisiana and Mississippi, and in midwestern states such as the Dakotas, Idaho and Wyoming.
 
 **<a href=http://trends.e-strategyblog.com/2013/05/09/top-gaining-site-categories-february-march-2013/11020> comScore Metrics Show Increase in Searches for G/L Articles </a>**
-Increase in gay/lesbian searches when looking for articles from 2012-2013. comScore metrics could possibly show the correlation of the increase of lesbians looking into more relevant articles while also showing the need this minority should be included in other articles.
+Between February and March of 2013, unique visitors to gay and lesbian lifestyle sites shot up 40%, a larger increase than in any other category, including health, career and spiritually sites.  This data could help prove how including content about gays and lesbians could increase overall traffic to sources not identified as LGB. 
 
 **<a href=http://www.gallup.com/poll/175418/lgbt-americans-report-lower.aspx?utm_source=add_this&utm_medium=addthis.com&utm_campaign=sharing#.U_sedDuhjaU.twitter> Gallup Poll from 2014 </a>**
 
-Lesbian women report lower well-being scores than straight women in this Gallup poll published in 2014. This includes a higher chance of street harassment when with a significant other, and also queer women have less of sense of purpose in life.
+Lesbian women report having a lower well-being than straight women, with a 56 index score compared to 63, in this Gallup poll, published in 2014. Lesbians also have a higher chance of street harassment when with a significant other, and have less of a sense of purpose in life, with 32 percent, compared to 40 percent of straight women.
 
 **<a href=http://istrategylabs.com/2010/04/facebook-gay-men-and-lesbian-statistics-pakistan-and-washington-dc-standout/> Lesbians on Facebook - iStrategy Analyses </a>**
+
+iStrategy analyzed gay & lesbian population count via FB. Some key insights included the amount of lesbian women on Facebook, at which age are there are the highest percentage of lesbians and that NY has the highest percentage of lesbian women despite certain findings that LGBT populations are higher in other areas. 
+
+**<a href=http://www.pewsocialtrends.org/2013/06/13/a-survey-of-lgbt-americans/> Pew Research Center's 18+ LGBT Survey </a>**
+
+A 2013 survey conducted by Pew Research Center of the LGBT population contains a nationally represented sample of over 1,000 LGBT adults 18+. According to the survey, 71% of lesbians say most or all of the important people in their lives know that they’re a lesbian. This is compared to 28% of bisexuals letting those who matter know, 77% of gay men and an overall 54% of all those within LGBT. 
+
 
 
