@@ -1,3 +1,5 @@
+Lesbians Want Representation
+
 **Why this is important now:**
 From the silent generation to millennials, same-sex marriage is increasingly becoming more accepted. According to a Pew Research poll conducted in early 2014, in the silent generation there has been an 80% increase in acceptance while millennials have increased by 33% from 2001 to 2014. Lesbians and bisexual women are no longer hiding as with acceptance comes a higher level of comfort. While the presence of lesbian and bisexual women has become increasingly popular, there should, in turn, be less and less an abnormality around the subject. A change in how lesbians and bisexual women are represented in media and in our society is significant in order to become inclusive of everyday norms.
 
@@ -34,11 +36,11 @@ Lesbian women report having a lower well-being than straight women, with a 56 in
 
 **<a href=http://istrategylabs.com/2010/04/facebook-gay-men-and-lesbian-statistics-pakistan-and-washington-dc-standout/> Lesbians on Facebook - iStrategy Analyses </a>**
 
-iStrategy analyzed gay & lesbian population count via Facebook. Some key insights included that 1.6 percent of all users identified as lesbian, and age 22 has the highest percentage of lesbians out of Facebook users in the United States. NY has the highest percentage of lesbian women, despite certain findings that LGBT populations are higher in other areas. 
+iStrategy analyzed gay and lesbian population count via Facebook. Some key insights included that 1.6 percent of all users identified as lesbian, and age 22 has the highest percentage of lesbians out of Facebook users in the United States. New York City contains the highest percentage of lesbian women, at 1.6 percent, with 55,000 users, despite certain findings that LGBT populations are higher in other areas. 
 
 **<a href=http://www.pewsocialtrends.org/2013/06/13/a-survey-of-lgbt-americans/> Pew Research Center's 18+ LGBT Survey </a>**
 
-A 2013 survey conducted by Pew Research Center of the LGBT population contains a nationally represented sample of over 1,000 LGBT adults 18+. According to the survey, 71% of lesbians say most or all of the important people in their lives know that they’re a lesbian. This is compared to 28% of bisexuals letting those who matter know, 77% of gay men and an overall 54% of all those within LGBT. 
+A 2013 survey conducted by Pew Research Center of the LGBT population contains a nationally represented sample of over 1,000 LGBT adults 18+. According to the survey, 71% of lesbians say most or all of the important people in their lives know that they’re a lesbian. This is compared to 28 percent of bisexuals, 77 percent of gay men and and 54 percent of all who identify as LGBT. 
 
 
 
