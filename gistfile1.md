@@ -46,5 +46,6 @@ Lesbians and bi-sexual women who feel outcasted by society.
   A 2013 survey conducted by Pew Research Center of the LGBT population contains a nationally represented sample of over 1,000 LGBT adults 18+. According to the survey, 71% of lesbians say most or all of the important people in their lives know that they’re a lesbian. This is compared to 28 percent of bisexuals, 77 percent of gay men and and 54 percent of all who identify as LGBT. 
 
 **<a href=http://www.experian.com/blogs/marketing-forward/2012/07/20/sim-a-look-at-household-income-and-discretionary-spend-of-lesbian-gay-and-heterosexual-americans/> Household Income and discretionary spending of Lesbian and Straight Women**
+
   Both single and partnered lesbians out-earned straight single and married women, averaging $44,000 compared to $38,000 individually. This is proof that lesbians have a larger disposable income than straight women, and are worth investing in as a community. 
 
