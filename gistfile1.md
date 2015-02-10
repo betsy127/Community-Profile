@@ -30,7 +30,8 @@ While the Census might not do that great of a job collecting specific data on sa
 **<a href=http://trends.e-strategyblog.com/2013/05/09/top-gaining-site-categories-february-march-2013/11020> comScore Metrics Show Increase in Searches for G/L Articles </a>**
 Increase in gay/lesbian searches when looking for articles from 2012-2013. comScore metrics could possibly show the correlation of the increase of lesbians looking into more relevant articles while also showing the need this minority should be included in other articles.
 
-**<a href=http://www.gallup.com/poll/175418/lgbt-americans-report-lower.aspx?utm_source=add_this&utm_medium=addthis.com&utm_campaign=sharing#.U_sedDuhjaU.twitter> Gallup Poll from 2014 </a> 
+**<a href=http://www.gallup.com/poll/175418/lgbt-americans-report-lower.aspx?utm_source=add_this&utm_medium=addthis.com&utm_campaign=sharing#.U_sedDuhjaU.twitter> Gallup Poll from 2014 </a>**
+
 Lesbian women report lower well-being scores than straight women in this Gallup poll published in 2014. This includes a higher chance of street harassment when with a significant other, and also queer women have less of sense of purpose in life.
 
 
