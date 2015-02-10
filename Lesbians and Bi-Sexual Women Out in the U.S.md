@@ -6,7 +6,7 @@ Emily Goldblum & Betsy Laikin
 From the silent generation to millennials, same-sex marriage is increasingly becoming more accepted. According to a Pew Research poll conducted in early 2014, in the silent generation there has been an 80% increase in acceptance while millennials have increased by 33% from 2001 to 2014. Lesbians and bisexual women are no longer hiding as with acceptance comes a higher level of comfort. While the presence of lesbian and bisexual women has become increasingly popular, there should, in turn, be less and less an abnormality around the subject. A change in how lesbians and bisexual women are represented in media and in our society is significant in order to become inclusive of everyday norms.
 
 **Who this community is:**
-Our proposed community are those who are over 18 years-old and who identify as lesbians or bisexual women in the United States.  This population is inclusive of all religions, ethnicities, and races.  Through numerous studies/surveys conducted we will be able to achieve a general idea of the total population size as well as where this community is.
+Our proposed community are those who are over 18 years-old and who identify as lesbians or bisexual women in the United States.  This population is inclusive of all religions, ethnicities, and races.  Through numerous studies/surveys conducted we will be able to achieve a general idea of the total population size, where the United States they are most heavily populated, and ultimately, how to include this community of women in media not singled out specifically for being lesbians.
 
 **Who might care about this:**
 Lesbians and bi-sexual women who feel outcasted by society.
