@@ -1,4 +1,5 @@
-Week 02 Pitch Assignment
+**Lesbians Want Representation**
+
 Emily Goldblum & Betsy Laikin
 
 **Why this is important now:**
