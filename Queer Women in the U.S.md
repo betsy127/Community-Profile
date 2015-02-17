@@ -9,7 +9,7 @@ From the silent generation to millennials, same-sex marriage is increasingly bec
 Our proposed community are those who are over 18 years-old and who identify as lesbians or bisexual women in the United States.  This population is inclusive of all religions, ethnicities, and races.  Through numerous studies/surveys conducted we will be able to achieve a general idea of the total population size, where in the United States they are most heavily populated, and ultimately, how to include this community of women in media not singled out specifically for being lesbians.
 
 **Who might care about this:**
-Queer women who feel outcasted by society. Allies of this community that show their support for <a href=http://www.pinknews.co.uk/2015/02/15/us-support-for-same-sex-marriage-hits-record-high/ normalizing gay culture. </a> 
+Queer women who feel outcasted by society. Allies of this community that show their support for <a href=http://www.pinknews.co.uk/2015/02/15/us-support-for-same-sex-marriage-hits-record-high>normalizing gay culture. </a> 
 
 <u>**Pre-Reporting:**</u>
 
