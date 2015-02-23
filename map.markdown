@@ -1,1 +1,0 @@
-![Imgur](http://i.imgur.com/vX8izZm.png)
