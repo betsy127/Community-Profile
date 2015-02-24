@@ -1,14 +1,16 @@
-The LGBT community is becoming more and more prevalent with each passing year. Only 13 states are withholding the rights for same-sex couples to get married. Within data it may look like the LGBT community is growing however it's possible that citizens are just becoming more comfortable with stating their sexuality and feeling more confident. Therefore, more data is finally being published on this set of people.
+**Overview**
+
+The LGBT community is becoming more prevalent with each passing year. Only 13 states are currently withholding the rights for same-sex couples to get married. According to the data,   the LGBT community is growing, however it's possible that citizens are just becoming more comfortable and confident in publicly stating their sexuality Therefore, more data is finally being published on this demographic. 
 
 <img src=http://placehold.it/450x100/000000/FFFFFF&text=line+chart+society+accept+by+year>
 
 ![Imgur](http://i.imgur.com/eS6FjtD.png)
 
-  The data on lesbian salaries/income/how much time they spend consuming media would be incentive for their inclusion on more mainstream platforms, and not just lesbian outlets. The point of our research is to go beyond just same sex marriage/LGBT rights, and towards the inclusion of lesbian community, not only "separate but equal," but included in mainstream culture. There are great economic advantages for media to include queer women.
+  The data on lesbian salaries/income/how much time they spend consuming media would be an incentive for their inclusion on more mainstream platforms, and not just on lesbian outlets. The point of our research is to go beyond just same sex marriage/LGBT rights, and to create a reason for the media to see how  the inclusion of the queer  community and not only "separate but equal platforms, in mainstream culture will have great economic advantages for these companies. 
   
   <img src=http://placehold.it/600x100/000000/FFFFFF&text=data+on+lesbians+in+workplace>
   
-  While all of these aspects are more visible in mainstream media and in society, gay men are still more prominent than gay women. Within television, gay men may not be represented in the best light however they don't go through trists of bisexuality. Women on the other hand, may fall to the writers believing a bisexual relationship would be a great surprise for all the viewers. This type of acknoweldgement might come during the infamous "sweeps week," in which TV shows switch it up for more views for their season finale. 
+In the media, gay men are very much more prominent than gay women, both as executives and as personalities. On television, gay men may not always be represented in the best light, however they don't go through trists of bisexuality. Often television writers have women engage in bisexual relationships, which they deem as exciting surprises for their viewers.This is often demonstrated  during the infamous "sweeps week," in which television shows go all out for the highest ratings possible  for their season finale. 
   
 ![Imgur](http://i.imgur.com/sDrLnkJ.png)
 
