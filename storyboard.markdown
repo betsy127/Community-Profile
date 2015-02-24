@@ -15,4 +15,8 @@ The LGBT community is becoming more and more prevalent with each passing year. O
 <img src=http://placehold.it/400x65/000000/FFFFFF&text=lesbian+visibility+on+TV>
 
 
+<img src=http://placehold.it/600x100/000000/FFFFFF&text=further+data+on+lesbian+acceptance>
+
+<img src=http://placehold.it/600x100/FFFFFF/000000&text=ideas+on+lesbians+wanting+to+be+included>
+<img src=http://placehold.it/600x100/FFFFFF/000000&text=possible+survey+on+queer+women>
 ![Imgur](http://i.imgur.com/vX8izZm.png)
