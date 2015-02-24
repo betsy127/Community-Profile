@@ -1,4 +1,4 @@
-The LGBT community is becoming more and more prevalent with each passing year. Only 13 states are withholding the rights for same-sex couples to get married. Within data it may look like the LGBT community is growing however it's possible that citizens are just becoming more comfortable with stating their sexuality and feeling less ashamed. Therefore, more data is finally being published on this set of people.
+The LGBT community is becoming more and more prevalent with each passing year. Only 13 states are withholding the rights for same-sex couples to get married. Within data it may look like the LGBT community is growing however it's possible that citizens are just becoming more comfortable with stating their sexuality and feeling more confident. Therefore, more data is finally being published on this set of people.
 
 <img src=http://placehold.it/450x100/000000/FFFFFF&text=line+chart+society+accept+by+year>
 
