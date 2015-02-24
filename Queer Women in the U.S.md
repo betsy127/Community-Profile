@@ -56,3 +56,5 @@ Queer women who feel outcasted by society. Allies of this community that show th
 **<a href=http://www.census.gov/hhes/samesex/files/Krivickas-Lofquist%20PAA%202011.pdf> ACS Census Data on Same Sex Couples**
 
 Although individual gay or lesbians cannot be accounted for with ACS data, there is a good amount of data on unmarried same-sex couples. This working paper delves into same-sex households with children.
+
+**<a href=http://williamsinstitute.law.ucla.edu/wp-content/uploads/Gates-How-Many-People-LGBT-Apr-2011.pdf> Estimated # of LGBT People**
