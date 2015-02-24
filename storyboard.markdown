@@ -1,3 +1,4 @@
+The LGBT community 
 ![Imgur](http://i.imgur.com/eS6FjtD.png)
 
   The data on lesbian salaries/income/how much time they spend consuming media would be incentive for their inclusion on more mainstream platforms, and not just lesbian outlets. The point of our research is to go beyond just gay marriage/gay rights, and towards the inclusion of lesbian community, not just "separate but equal", but included in mainstream culture. There are great economic advantages for media to include queer women.
